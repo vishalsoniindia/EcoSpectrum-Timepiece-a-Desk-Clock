@@ -13,6 +13,8 @@ Shop to Support My Channel! 🛒
 
 Unihiker Board: https://amzn.to/3YPnf54
 
+L shape Type C: https://amzn.to/3M8fC1R
+
 
 
 **DFRobots**
@@ -28,6 +30,8 @@ L shape Type C: https://www.dfrobot.com/product-2768.html?tracking=0HVwH59IpOrEi
 **Amazon.in**
 
 Unihiker Board: https://amzn.to/3MaXBzY
+
+L shape Type C: https://amzn.to/3WRNPYE
 
 
 ![FFER85ALZ707DY4](https://github.com/user-attachments/assets/72df3aa1-d19a-415a-9470-d96de5bd571b)
