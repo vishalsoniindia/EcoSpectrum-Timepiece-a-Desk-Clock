@@ -9,14 +9,14 @@ _________________________________
 
 Shop to Support My Channel! 🛒
 
-Amazon.com
+**Amazon.com**
 Unihiker Board: https://amzn.to/3YPnf54
 
-DFRobots
+**DFRobots**
 Unihiker Board: https://www.dfrobot.com/product-2691.html?tracking=0HVwH59IpOrEiQNWCLkckDzfoa3ZLn6wB92wRz7Dgf4OFPmy6xMfjoolE15M40NN
 Silicone Case: https://www.dfrobot.com/product-2715.html?tracking=0HVwH59IpOrEiQNWCLkckDzfoa3ZLn6wB92wRz7Dgf4OFPmy6xMfjoolE15M40NN
 
-Amazon.in
+**Amazon.in**
 Unihiker Board: https://amzn.to/3MaXBzY
 
 ![FFER85ALZ707DY4](https://github.com/user-attachments/assets/72df3aa1-d19a-415a-9470-d96de5bd571b)
