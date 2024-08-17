@@ -21,6 +21,8 @@ Unihiker Board: https://www.dfrobot.com/product-2691.html?tracking=0HVwH59IpOrEi
 
 Silicone Case: https://www.dfrobot.com/product-2715.html?tracking=0HVwH59IpOrEiQNWCLkckDzfoa3ZLn6wB92wRz7Dgf4OFPmy6xMfjoolE15M40NN
 
+L shape Type C: https://www.dfrobot.com/product-2768.html?tracking=0HVwH59IpOrEiQNWCLkckDzfoa3ZLn6wB92wRz7Dgf4OFPmy6xMfjoolE15M40NN
+
 
 
 **Amazon.in**
