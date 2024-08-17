@@ -4,7 +4,7 @@ I created the EcoSpectrum Timepiece to blend functionality with the beauty of na
 _________________________________
 buy me a coffee! ☕: https://www.paypal.com/ncp/payment/YXAV36PXYN59G
 _________________________________
-Watch on youtube: https://youtu.be/S9wckWNMoTo
+Watch on youtube ▶️: https://youtu.be/S9wckWNMoTo
 _________________________________
 
 Shop to Support My Channel! 🛒
